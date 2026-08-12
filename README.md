@@ -1,4 +1,4 @@
-# past
+# history
 
 https://blog.naver.com/2008530junior
 
